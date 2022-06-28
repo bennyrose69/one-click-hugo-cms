@@ -1,14 +1,4 @@
----
-title: "Pune escorts | VIP model girls available 24/7 | BennyRose69"
-subtitle: Support sustainable farming while enjoying a cup
-image: /img/home-jumbotron.jpg
-blurb:
-    heading: Pune independent escort Book today!?
-    text: "If you're having personal problems. Then, use a Pune personal shopper. Our beautiful escorts will keep you entertained all night long.
-We'll let you decide. Choose safe VIP escorts in Pune. Our model females escorts WhatsApp number will provide you the most amazing evenings of your life.
-"
-intro:
-    Why should you hire a Pune escort?
+Why should you hire a Pune escort?
 ==================================
 
 [![pune escort girl maya taking her selfie](https://www.puneescorts.me/wp-content/webp-express/webp-images/doc-root/wp-content/uploads/2017/03/IMG-20190827-WA0068.jpg.webp)](https://www.puneescorts.me/)
@@ -92,4 +82,3 @@ They call us because we offer the greatest service to set up dates with women.
 Celebrity [Baner escorts](https://www.puneescorts.me/city/baner/) Best love and romance:
 
 Passionate love can reduce stress. She exudes stress.
-
