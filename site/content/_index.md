@@ -3,10 +3,12 @@ title: "Great coffee with a conscience"
 subtitle: Support sustainable farming while enjoying a cup
 image: /img/home-jumbotron.jpg
 blurb:
-    heading: Why Kaldi?
-    text: "Kaldi is the coffee store for everyone who believes that great coffee shouldn't just taste good, it should do good too. We source all of our beans directly from small scale sustainable farmers and make sure part of the profits are reinvested in their communities."
+    heading: Pune independent escort Book today!?
+    text: "If you're having personal problems. Then, use a Pune personal shopper. Our beautiful escorts will keep you entertained all night long.
+We'll let you decide. Choose safe VIP escorts in Pune. Our model females escorts WhatsApp number will provide you the most amazing evenings of your life.
+"
 intro:
-    heading: "What we offer"
+    heading: "Why should you hire a Pune escort?"
     text: "Kaldi is the ultimate spot for coffee lovers who want to learn about their java’s origin and support the farmers that grew it. We take coffee production, roasting and brewing seriously and we’re glad to pass that knowledge to anyone."
 products:
     - image: img/illustrations-coffee.svg
