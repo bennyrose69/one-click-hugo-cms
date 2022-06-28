@@ -1,33 +1,3 @@
----
-title: "Pune escorts | VIP model girls available 24/7 | BennyRose69"
-discription: "Pune escorts | VIP model girls available 24/7 | BennyRose69"
-subtitle: Support sustainable farming while enjoying a cup
-image: /img/home-jumbotron.jpg
-blurb:
-    heading: Pune independent escort Book today!?
-    text: "If you're having personal problems. Then, use a Pune personal shopper. Our beautiful escorts will keep you entertained all night long.
-We'll let you decide. Choose safe VIP escorts in Pune. Our model females escorts WhatsApp number will provide you the most amazing evenings of your life.
-"
-intro:
-    heading: "Why should you hire a Pune escort?"
-    text: "Kaldi is the ultimate spot for coffee lovers who want to learn about their java’s origin and support the farmers that grew it. We take coffee production, roasting and brewing seriously and we’re glad to pass that knowledge to anyone."
-products:
-    - image: img/illustrations-coffee.svg
-      text: "We sell green and roasted coffee beans that are sourced directly from independent farmers and farm cooperatives. We’re proud to offer a variety of coffee beans grown with great care for the environment and local communities. Check our post or contact us directly for current availability."
-    - image: /img/illustrations-coffee-gear.svg
-      text: "If you're having personal problems. Then, use a Pune personal shopper. Our beautiful [Pune escorts](https://www.puneescorts.me/) will keep you entertained all night long.
-
-We'll let you decide. Choose safe VIP escorts in Pune. Our model females escorts WhatsApp number will provide you the most amazing evenings of your life.
-
-Our high-end escort service in Pune only uses gorgeous, fit girls. Working in Pune? Top models can assist you have a nice time.
-
-Customers adore our personable college-aged models. Customer approval. Pune may have nasty escort girls. Imagine VIP escorting in Pune today.
-
-Pune is better with a guide."
-values:
-    heading: Our values
-    text: Coffee is an amazing part of human culture but it has a dark side too – one of colonialism and mindless abuse of natural resources and human lives. We want to turn this around and return the coffee trade to the drink’s exhilarating, empowering and unifying nature.
- -----   
 Why should you hire a Pune escort?
 ==================================
 
@@ -112,6 +82,3 @@ They call us because we offer the greatest service to set up dates with women.
 Celebrity [Baner escorts](https://www.puneescorts.me/city/baner/) Best love and romance:
 
 Passionate love can reduce stress. She exudes stress.
-
-
-
